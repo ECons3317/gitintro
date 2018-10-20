@@ -1,3 +1,3 @@
 # gitintro
-# WAZZZAAAA 
-@ jorgeibarra01
+# Visitors 
+    1. @ jorgeibarra01
